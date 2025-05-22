@@ -4,7 +4,7 @@
 - 🌈 Statistics undergraduate from the Chinese University of Hong Kong, Shenzhen
 - ⚡️ Rigorous and rational attitude towards scientific research & creative and flexible perspective to approach problems
    
-- ⛰️ Know about my experiences by the resume [https://drive.google.com/file/d/1vpDZIZ9AKD60xX9UPviNG3txtkH5FXgW/view?usp=drive_link](https://drive.google.com/file/d/1vpDZIZ9AKD60xX9UPviNG3txtkH5FXgW/view?usp=drive_link)
+- ⛰️ Get to know me by the resume (2023) [https://drive.google.com/file/d/1vpDZIZ9AKD60xX9UPviNG3txtkH5FXgW/view?usp=drive_link](https://drive.google.com/file/d/1vpDZIZ9AKD60xX9UPviNG3txtkH5FXgW/view?usp=drive_link)
 - ☁️ Connect with me via email: 122090551@link.cuhk.edu.cn</h3>
 
 <p align="left">
